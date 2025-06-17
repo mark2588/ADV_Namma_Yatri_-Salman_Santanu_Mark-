@@ -1,0 +1,1 @@
+Namma Yatri is a Direct-to-Driver open mobility platform developed by Juspay, driving the next generation of mobility applications in India. Since its official launch in January 2023, it has become Bengaluru's most beloved auto app.
